@@ -25,8 +25,6 @@
     
 官方APP下载地址：<https://www.ppp.line.pm/web/popPorn.html>  
 
-下载地址：  
-如果微信、QQ扫码无法打开，请换其他浏览器扫码下载
   
 
   
