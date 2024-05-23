@@ -1,8 +1,8 @@
 # popporn  
 回家地址：
  官方Telegram群组：https://t.me/porn2008  
- 官方Telegram频道：https://t.me/porn91abme
- 官方商务联系人：https://t.me/swhz91
+ 官方Telegram频道：https://t.me/porn91abme  
+ 官方商务联系人：https://t.me/swhz91  
 2023-07-20更新：
  永久短域名地址：https://91ab.me
  最新下载地址：https://8e.eimkeb.com
