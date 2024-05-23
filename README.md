@@ -3,12 +3,13 @@
  官方Banlu群组：<https://bl.im/+zB2X6kOlzrfu0_54>  
  官方APP下载地址：<https://www.ppp.line.pm/web/popPorn.html>  
 
+<img width="375" alt="Group 1312335243" src="https://github.com/gwilliamgcocjm/popporn/assets/170412444/dd8301ec-6177-4f58-8f0c-246d0d4cd673">
+
 
 应用特色：  
 深夜看片打飞机，全网首选APP。  
 500万部视频免费观看，高清秒播。    
-免费看片还赚钱 ，![download](https://github.com/gwilliamgcocjm/popporn/assets/170412444/7708e11b-a2e3-4c6c-9fee-02be85c1fc60)
-邀请好友轻松月入过万。    
+免费看片还赚钱，邀请好友轻松月入过万。    
 
 1.请切换网络 WIFI/4G/5G 或者使用 科学上网工具（VP恩）  
 2.请拷贝完整地址到浏览器访问， 有前缀 https://  
