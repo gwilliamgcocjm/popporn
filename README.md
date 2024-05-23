@@ -18,5 +18,9 @@
 4.以上方法都不行请截图发送给群管理反馈～  
 请把网址或者QQ群分享给身边有需要的人 ，您的转发、分享是我们前进的动力～  
 
- 官方APP下载地址：<https://www.ppp.line.pm/web/popPorn.html>  
+官方APP下载地址：<https://www.ppp.line.pm/web/popPorn.html>  
 
+下载地址：  
+如果微信、QQ扫码无法打开，请换其他浏览器扫码下载  
+![download](https://github.com/gwilliamgcocjm/popporn/assets/170412444/cea57ef2-b3b3-46b1-9a87-34d0da8d430c)
+  
