@@ -22,5 +22,6 @@
 
 下载地址：  
 如果微信、QQ扫码无法打开，请换其他浏览器扫码下载  
-![download](https://github.com/gwilliamgcocjm/popporn/assets/170412444/cea57ef2-b3b3-46b1-9a87-34d0da8d430c)
+![Group 1312335244](https://github.com/gwilliamgcocjm/popporn/assets/170412444/bf32d0c3-ff95-403d-b4f7-fcfc1b9d053f)
+
   
