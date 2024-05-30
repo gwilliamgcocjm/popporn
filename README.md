@@ -2,7 +2,7 @@
 **回家地址：**    
  官方Banlu群组：<https://bl.im/+zB2X6kOlzrfu0_54>  
    
- 官方APP下载地址：<https://www.ppp.line.pm/web/popPorn.html>  
+ 官方APP下载地址：<https://pappron.live/web/popPorn.html>  
    
 <img width="375" alt="Group 1312335243" src="https://github.com/gwilliamgcocjm/popporn/assets/170412444/dd8301ec-6177-4f58-8f0c-246d0d4cd673">
 
@@ -21,7 +21,7 @@
 
 
     
-官方APP下载地址：<https://www.ppp.line.pm/web/popPorn.html>  
+官方APP下载地址：<https://pappron.live/web/popPorn.html>  
 
   
 
