@@ -1,8 +1,7 @@
-# PopPorn  
 **回家地址：**    
- 官方Banlu群组：<https://bl.im/+zB2X6kOlzrfu0_54>  
+ 官方POTATO CHAT群组：<https://ptd6.app/bilibiliapp>  
    
- 官方APP下载地址：<https://pappron.live/web/popPorn.html>  
+ 官方APP下载地址：<https://www.potato.im/>  
  
 
 
