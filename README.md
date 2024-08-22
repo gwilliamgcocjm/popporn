@@ -1,7 +1,7 @@
 **回家地址：**    
  官方POTATO CHAT群组：<https://ptd6.app/bilibiliapp>  
    
- 官方APP下载地址：<https://www.potato.im/>  
+ 官方APP下载地址：<https://www.kuaishe.app/>  
  
 
 
@@ -19,7 +19,7 @@
 
 
     
-官方APP下载地址：<https://pappron.live/web/popPorn.html>  
+官方APP下载地址：<https://www.kuaishe.app/>  
 
   
 
