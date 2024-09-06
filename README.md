@@ -1,7 +1,7 @@
 **回家地址：**    
- 官方POTATO CHAT群组：<https://ptd6.app/bilibiliapp>  
+ 官方POTATO CHAT群组：<https://dljpt6.org/jiu1guanfang>  
    
- 官方APP下载地址：<https://www.kuaishe.app/>  
+ 官方APP下载地址：<https://91.xxx/>  
  
 
 
@@ -19,7 +19,7 @@
 
 
     
-官方APP下载地址：<https://www.kuaishe.app/>  
+官方APP下载地址：<https://91.xxx/>  
 
   
 
